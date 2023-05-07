@@ -2,8 +2,8 @@
 
 ## Among Us模组
 
-1.超新职业1542:<https://www.123pan.com/s/y8DeVv-XR1xh.html> <font color=red>提取码：bcdc</font>
-2.还是1542<https://pan.huang1111.cn/s/vWd2CE>
+-超新职业1542:<https://www.123pan.com/s/y8DeVv-XR1xh.html> <font color=red>提取码：bcdc</font>  
+-还是1542<https://pan.huang1111.cn/s/vWd2CE>
 
 ![这是一张网络图片](https://amonguscn.club/wp-content/uploads/2022/05/9ceb1875853f.jpg)
 
