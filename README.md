@@ -1,3 +1,3 @@
 # plaincattt.github.io
-# hello world
+# AMONG US各生草版
 测试
